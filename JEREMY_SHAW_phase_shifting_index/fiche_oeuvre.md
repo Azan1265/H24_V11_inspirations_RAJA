@@ -23,6 +23,9 @@ Phase Shifting Index (2020) décrit sept groupes autonomes engagés dans des sys
 
 ## Mise en place
 ![IMG_0267](https://github.com/Azan1265/H24_V11_inspirations_RAJA/assets/143218991/9c6c757c-1255-4227-9b6e-379ec89779b6)
+Il ya 7 vidéos différentes qui jouent en même temps.
+
+
 
 
 
