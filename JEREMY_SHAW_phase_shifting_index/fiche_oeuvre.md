@@ -15,17 +15,20 @@
 
 ## Description
 Phase Shifting Index (2020) décrit sept groupes autonomes engagés dans des systèmes de croyance incarnés et basés sur le mouvement qui aspirent à induire des réalités parallèles. Utilisant divers médias démodés du XXe siècle, allant du film 16 mm à la bande vidéo Hi-8, Shaw présente ce qui semble être des séquences documentaires comme un futur lointain, créant une dissonance cognitive dans la relation du spectateur avec un sentiment de lieu et de temps.
-![IMG_0277](https://github.com/Azan1265/H24_V11_inspirations_RAJA/assets/143218991/0131e62a-1df5-44fd-8e0b-57da90e3b6a7)
-![IMG_0278](https://github.com/Azan1265/H24_V11_inspirations_RAJA/assets/143218991/d2594d14-654b-419c-99db-c0e4eb4b544a)
+![ecran_01](https://github.com/Azan1265/H24_V11_inspirations_RAJA/assets/143218991/1f000c82-af1a-43f1-8af8-c9ec343963ff)
+![ecran_02](https://github.com/Azan1265/H24_V11_inspirations_RAJA/assets/143218991/97a938d5-3c4f-4265-b49f-239436fda743)
+
 
 ## Installation Immersive
-![IMG_0288](https://github.com/Azan1265/H24_V11_inspirations_RAJA/assets/143218991/7533cd9d-95be-4211-afb3-25fadf7c3c65)
+![ecran_multi_02](https://github.com/Azan1265/H24_V11_inspirations_RAJA/assets/143218991/c5f6b07e-55a6-4ee1-bb00-3df33a8d3727)
 
-## Mise en place
-![IMG_0267](https://github.com/Azan1265/H24_V11_inspirations_RAJA/assets/143218991/9c6c757c-1255-4227-9b6e-379ec89779b6)
-Il ya 7 vidéos différentes qui jouent en même temps.
+## Mise en espace
+![croquis](https://github.com/Azan1265/H24_V11_inspirations_RAJA/assets/143218991/f7c504fe-e06e-4413-b0dd-e9123b010396)
+Il y a 7 vidéos différentes qui jouent en même temps.
 
-![image](media/texte_introduction.jpg)
+## Composantes et techniques
+
+
 
 
 
