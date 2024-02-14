@@ -27,6 +27,8 @@ Phase Shifting Index (2020) décrit sept groupes autonomes engagés dans des sys
 Il y a 7 vidéos différentes qui jouent en même temps.
 
 ## Composantes et techniques
+![image](https://github.com/Azan1265/H24_V11_inspirations_RAJA/assets/143218991/c444d7ce-2477-46f4-a96a-c1cbe252005d)
+Des projecteurs sont utiliser pour faire jouer les vidéos de l'oeuvre
 
 
 
