@@ -28,7 +28,28 @@ Il y a 7 vidéos différentes qui jouent en même temps.
 
 ## Composantes et techniques
 ![image](https://github.com/Azan1265/H24_V11_inspirations_RAJA/assets/143218991/c444d7ce-2477-46f4-a96a-c1cbe252005d)
-Des projecteurs sont utiliser pour faire jouer les vidéos de l'oeuvre
+Des projecteurs sont utiliser pour faire jouer les vidéos de l'oeuvre.
+Les vidéos eux-mêmes ont l'air vieux, mais qui sont intentionnellement comme ça.
+
+## Éléments nécessaires à la mise en exposition
+![information](https://github.com/Azan1265/H24_V11_inspirations_RAJA/assets/143218991/c752233a-5cf8-42b7-89d6-c0786ca73b80)
+
+## Expérience vécue
+Durant la visite, je me promenais partout pour voir les vidéos.
+Dans chacunes des vidéos, les gens fesaient des mouvements différents.
+Après quelque temps, ils fesaient le même type de mouvement en même temps.
+C'était plutot fascinant comme expérience.
+
+## Ce qui m'a plu
+Les différents styles de cinématographies m'a vraiment suppris, en ajoutant que les vidéos étaient tous en harmonie avec l'un et l'autre. La partie avec le sorte d'arc-en-ciel était vraiment beau pour les eyes.
+j'espère que je pourrais faire quelque chose de semblable au futur de ma carrière.
+
+## Aspects à pas retenir
+Honnêtement, il y a aucune aspect que je ne retiendrai pas, parce qu'ils ont l'airs toutes pertinantes et utiles au future.
+
+## références
+https://macm.org/en/exhibitions/jeremy-shaw/
+
 
 
 
