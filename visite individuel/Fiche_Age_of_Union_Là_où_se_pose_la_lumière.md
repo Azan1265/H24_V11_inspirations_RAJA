@@ -11,9 +11,12 @@
 ![IMG_0429](https://github.com/Azan1265/H24_V11_inspirations_RAJA/assets/143218991/99ba1db3-52a2-49a9-9c62-3419b7df48f8)
 ![IMG_0449](https://github.com/Azan1265/H24_V11_inspirations_RAJA/assets/143218991/f4dfbced-f8bf-4cb3-b68d-95b9731b9145)
 
+**Exposition premanante intérieur**
+
 ### Description
 Mère, fille et petite-fille, Mélanie O'Bomsawin est vidéaste et artiste des nouveaux médias. Née d'une W8banaki (Abénaquis) et d'un parent québécois, elle utilise la vidéo sous toutes ses formes pour explorer ses liens avec les générations qui l'ont précédée et celles qui suivront. Sa pratique examine les questions d'identité, de tradition, de mémoire et de transmission des connaissances à travers les relations humaines. Passionnée par les nouvelles technologies, elle recherche constamment des façons originales de raconter des histoires et de transformer notre vision du monde qui nous entoure. La souveraineté narrative des communautés autochtones est au premier plan de la philosophie créative d'O'Bomsawin. Cela l’inspire pour, un jour, construire les archives du futur et recréer les pixels du passé. Membre de la communauté abénakise d'Odanak, O'Bomsawini est actuellement basé à Tiohtià:ke/Mooniyang/Montréal (Québec).
 
+### installation immersive
 ![IMG_0432](https://github.com/Azan1265/H24_V11_inspirations_RAJA/assets/143218991/5eefe59f-4a38-4a9f-8a10-5571419fbf36)
 ![IMG_0433](https://github.com/Azan1265/H24_V11_inspirations_RAJA/assets/143218991/c67a4be5-3f93-4313-9722-8254b5d2047b)
 ![IMG_0445](https://github.com/Azan1265/H24_V11_inspirations_RAJA/assets/143218991/357b6d41-7171-480e-a0fe-7a4fa7bbe61a)
